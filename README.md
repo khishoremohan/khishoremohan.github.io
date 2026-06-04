@@ -1,2 +1,0 @@
-# khishoremohan.github.io
-portfolio
